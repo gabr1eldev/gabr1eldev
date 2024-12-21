@@ -1,4 +1,4 @@
-# Hello! Im Gabriel Gregório! 🖐️
+# Hello! I am Gabriel, welcome to my github 🖐️
 </br>
 </br></br>
 <div style="display:inline"></br>
